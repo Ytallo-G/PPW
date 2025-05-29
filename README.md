@@ -1,5 +1,5 @@
 🙋‍♂️ Sou Ytallo, nascido e criado no Piauí
-👨‍🎓 Cursando o 3° Ano no IFPI - Campus Parnaíba
+👨‍🎓 Concludente do curso de técnico de informática integrado ao médio no IFPI - Campus Parnaíba
 👨‍💻 Com ambição pelas áreas de Informatica, Administração e Linguas
-🎌 Estudando Inglês, Italiano, Espanhol e Francês
+🎌 Estudante de Inglês, Italiano, Espanhol e Francês, facinado pelo Polonês
 ✝️ Vocacionado ao Sacerdocio
